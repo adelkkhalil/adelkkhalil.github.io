@@ -1,0 +1,4 @@
+adelkkhalil.github.io
+=====================
+
+Rants
